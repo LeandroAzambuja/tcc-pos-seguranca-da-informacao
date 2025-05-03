@@ -21,4 +21,5 @@ FACUMINAS
 
 Leandro Cavalcante Azambuja  
 **Ano:** 2025  
-https://www.linkedin.com/in/leandro-cavalcante-8062b0224/
+
+https://www.linkedin.com/in/leandro-cavalcante-azambuja/
